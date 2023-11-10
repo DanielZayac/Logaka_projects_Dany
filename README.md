@@ -1,1 +1,1 @@
-# Logaka_projects_Dany
+# Logika_projects_Dany
